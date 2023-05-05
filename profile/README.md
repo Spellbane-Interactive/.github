@@ -2,7 +2,7 @@
 
 ![Alt Text](https://media.tenor.com/4zzcJpL8cDgAAAAd/rat-mouse.gif)
 
-pretty rad i know?
+pretty rad right?
 <!--
 
 **Here are some ideas to get you started:**
