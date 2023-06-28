@@ -2,7 +2,7 @@
 
 ![Alt Text](https://media.tenor.com/4zzcJpL8cDgAAAAd/rat-mouse.gif)
 
-pretty rad right?
+pretty rad right? id let that rat live with me
 <!--
 
 **Here are some ideas to get you started:**
